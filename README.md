@@ -1,26 +1,48 @@
   # ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔    𝔦 ♡ 𝔭𝔯𝔲𝔰𝔰𝔦𝔞 
-  ꒰  𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘥𝘰𝘸𝘯 𝘣𝘦𝘭𝘰𝘸 ! ꒱ . . . . . 
+  
+  <div align="center">
+    ꒰  𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘥𝘰𝘸𝘯 𝘣𝘦𝘭𝘰𝘸 ! ꒱ . . . . . 
+  
 
 <img width="90" height="80" alt="pusheen-pusheen-cat" src="https://github.com/user-attachments/assets/e90d8bf8-1d68-4157-a1dd-b076d10ab5e9" /> <img width= "200" height="90" alt="cat" src="https://github.com/user-attachments/assets/d86fc0fc-fb37-4e48-b798-e9b43a6a1f5f" /> <img width="140" height="90" alt="unicorn-horse" src="https://github.com/user-attachments/assets/1f802183-3f6d-4207-8cc5-9a39c21099d2" />
 
+  $${\color{#b29d94}𝙩𝙝𝙚ㅤ𝙪𝙣𝙞𝙫𝙚𝙧𝙨𝙚'𝙨,ㅤ𝙩𝙝𝙚ㅤ𝙜𝙖𝙡𝙖𝙭𝙮'𝙨ㅤ𝙝𝙚𝙧𝙚ㅤ𝙗𝙚𝙘𝙖𝙪𝙨𝙚ㅤ𝙞'𝙢ㅤ𝙝𝙚𝙧𝙚.}$$
+  $${\color{#b29d94}ㅤ𝙚𝙣𝙙𝙡𝙚𝙨𝙨ㅤ𝙖𝙬𝙚𝙨𝙤𝙢𝙚𝙣𝙚𝙨𝙨,ㅤ𝙞'𝙢ㅤ𝙥𝙧𝙪𝙨𝙨𝙞𝙖ㅤ!ㅤ!ㅤ ᯓ★ }$$
 
- # 𝙩𝙝𝙚 𝙪𝙣𝙞𝙫𝙚𝙧𝙨𝙚'𝙨 𝙝𝙚𝙧𝙚 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙞'𝙢 𝙝𝙚𝙧𝙚, 𝙩𝙝𝙚 𝙜𝙖𝙡𝙖𝙭𝙮'𝙨 𝙝𝙚𝙧𝙚 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙞'𝙢 𝙝𝙚𝙧𝙚. 𝙚𝙣𝙙𝙡𝙚𝙨𝙨 𝙖𝙬𝙚𝙨𝙤𝙢𝙚𝙣𝙚𝙨𝙨, 𝙞'𝙢 𝙥𝙧𝙪𝙨𝙨𝙞𝙖 !! ~
- <img width="1136" height="690" alt="image" src="https://github.com/user-attachments/assets/1723b6c2-52c0-42b0-aca8-c6afdff9e753" />
-<img width="1136" height="16" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
+ <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/1723b6c2-52c0-42b0-aca8-c6afdff9e753" />
 
-
-# 𝑫𝑵𝑰 𝑳𝑰𝑺𝑻!!!!!!! 
-𝙟𝙚𝙧𝙠𝙨 𝙞𝙣 𝙜𝙚𝙣𝙚𝙧𝙖𝙡, 𝙥𝙧𝙤/𝙙𝙖𝙧𝙠𝙨𝙝𝙞𝙥𝙥𝙚𝙧𝙨, 𝙚𝙩𝙘., 𝙖𝙣𝙮𝙤𝙣𝙚 +17, (𝙤𝙗𝙫𝙞) 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙚𝙨 𝙖𝙣𝙙/𝙤𝙧 𝙩𝙧𝙖𝙣𝙨𝙥𝙝𝙤𝙗𝙚𝙨, 𝙧𝙖𝙘𝙞𝙨𝙩𝙨, 𝙩𝙝𝙤𝙨𝙚 𝙩𝙮𝙥𝙚 𝙤𝙛 𝙩𝙘𝙘 𝙥𝙚𝙤𝙥𝙡𝙚, 𝙪𝙨𝙪𝙠, 𝙨𝙥𝙖𝙣𝙖𝙢𝙤, 𝒑𝒓𝒖𝒈𝒆𝒓, 𝙚𝙩𝙘. 𝙨𝙝𝙞𝙥𝙥𝙚𝙧𝙨 (𝙥𝙥𝙡 𝙬𝙝𝙤 𝙨𝙝𝙞𝙥 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 𝙩𝙝𝙖𝙩 𝙧 𝙧𝙚𝙡𝙖𝙩𝙚𝙙 𝙞𝙣 𝙜𝙚𝙣𝙚𝙧𝙖𝙡), 𝒕𝒉𝒐𝒔𝒆 𝒕𝒚𝒑𝒆𝒔 𝒐𝒇 𝒚𝒖𝒎𝒆𝒔𝒉𝒊𝒑𝒑𝒆𝒓𝒔 + 𝒇𝒊𝒄𝒕𝒊𝒐𝒏𝒌𝒊𝒏𝒔, 𝙖𝙣𝙙 𝙟𝙪𝙨𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙬𝙝𝙤𝙨 𝙖 𝙬𝙚𝙞𝙧𝙙𝙤. (𝒂𝒍𝒔𝒐 𝒑𝒑𝒍 𝒘𝒉𝒐 𝒉𝒂𝒕𝒆 𝒐𝒏 𝒎𝒚 𝒈𝒐𝒂𝒕 𝒑𝒓𝒖𝒔𝒔𝒊𝒂)
+ㅤㅤㅤㅤ[strawpage !!](https://kittencatsmeow.straw.page) pls look its so cool im so coolㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="1136" height="16" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
 
 
-
-
- also! other fandoms i am in are banana fish, alnst (kinda..), 𝗍𝖺𝖽𝖼, and neon genesis evangelion ! — ᨳଓ .
+<img width="99" height="56" alt="blinkies-hannigram" src="https://github.com/user-attachments/assets/67ea47f7-a8e6-4d8f-9722-995754914363" /><img width="99" height="55" alt="k28" src="https://github.com/user-attachments/assets/8fa455f0-9e14-4025-90f6-4fe6e1be4a61" /><img width="99" height="56" alt="a32" src="https://github.com/user-attachments/assets/cb317f51-6cdd-4cfd-933f-c55b7f64eb6d" /><img width="99" height="56" alt="a22" src="https://github.com/user-attachments/assets/659f2f87-b5b3-411d-96e3-821027a0fde1" />
+<img width="150" height="20" alt="d13" src="https://github.com/user-attachments/assets/9ab99338-1277-4d64-af98-564132c4cb60" /><img width="150" height="20" alt="62" src="https://github.com/user-attachments/assets/4da76234-0620-4227-9001-5a4475c5a451" /><img width="150" height="20" alt="39" src="https://github.com/user-attachments/assets/95d9782a-baa2-42ba-8e0b-08b12d8999d0" /><img width="150" height="20" alt="h44" src="https://github.com/user-attachments/assets/c0778fda-d6d0-4113-9d45-d092bd45c55f" /><img width="150" height="20" alt="g124" src="https://github.com/user-attachments/assets/14a7f7f1-4271-447d-8ec8-30622f10e9b2" /><img width="150" height="20" alt="0021-vampirefangs" src="https://github.com/user-attachments/assets/593eeefc-5df8-488b-ba0a-f7fc8666c61f" /><img width="150" height="20" alt="this kitten has claws" src="https://github.com/user-attachments/assets/01fddaf2-4bc0-4af8-8ca1-33f2d6dbcd79" /><img width="150" height="20" alt="warrior-cats-blinkie" src="https://github.com/user-attachments/assets/a8bcaff1-be80-4e8d-9e0b-ea820f085c97" /><img width="150" height="20" alt="blinkie" src="https://github.com/user-attachments/assets/2a8585ad-b688-48a3-b2fb-b754fadc110f" /><img width="150" height="20" alt="blinkie-blinkies" src="https://github.com/user-attachments/assets/e5ae6938-ceda-48a9-b65d-372bfaa2058c" /><img width="150" height="20" alt="blinkies-nyan-cat" src="https://github.com/user-attachments/assets/e6544922-a22b-40a6-8794-2908fd050b5c" /><img width="150" height="20" alt="lesbain-yuri" src="https://github.com/user-attachments/assets/ea867bde-43bc-4ade-bdc1-96bbde3afd91" /><img width="150" height="20" alt="blinkie-spy-tf2" src="https://github.com/user-attachments/assets/46f6d8d9-c968-40c9-afa2-0c016fc505ec" /><img width="150" height="20" alt="cyberpunk-2077-blinkie-blinkies" src="https://github.com/user-attachments/assets/bd999afe-5326-437d-befd-f5a1368c5910" /><img width="150" height="20" alt="vampire-vampirekin" src="https://github.com/user-attachments/assets/fc5fb43e-f86e-42a0-a74b-a7621f78bf4e" /><img width="150" height="20" alt="sometimes-purr" src="https://github.com/user-attachments/assets/1da7a9d3-a6d8-4646-98dd-b7aeefb2da18" /><img width="150" height="20" alt="h46" src="https://github.com/user-attachments/assets/4a70fbde-9bd3-4055-8081-235b846d4126" /><img width="150" height="20" alt="x11" src="https://github.com/user-attachments/assets/43f3ad3f-b38c-4cf9-8282-070b65ea4788" /><img width="150" height="20" alt="z9" src="https://github.com/user-attachments/assets/e9219f14-d73d-4266-bd23-4890f5329142" /><img width="150" height="20" alt="z28" src="https://github.com/user-attachments/assets/d9aa6ab5-8fcd-4948-a1c3-ef9c2cbf4a65" /><img width="150" height="20" alt="c1" src="https://github.com/user-attachments/assets/cedab66e-23ed-4c7b-ae27-538e6261ebd0" />
 
 
 
 
-<img width="1136" height="100" alt="banner-devider" src="https://github.com/user-attachments/assets/7f054a62-2024-43c9-a54f-754eec411ce5" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
