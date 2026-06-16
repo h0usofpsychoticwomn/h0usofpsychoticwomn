@@ -12,7 +12,7 @@
 
  <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/1723b6c2-52c0-42b0-aca8-c6afdff9e753" />
 
-i really dont mind interaction n stuff i very much encourage it but im js awkward at first so...bear with me pols..but i do lov making new friends even thiugh im 2 scared to talk to any1 else most of the time (i like making myself seem super bold and extroverted n stuff online but im really not)
+i really dont mind interaction n stuff i very much encourage it but im js awkward at first so...bear with me pols..but i do lov making new friends even thiugh im 2 scared to talk to any1 else most of the time (i like making myself seem super bold and extroverted n stuff online but im really not) ps i h8 small talk i will blow my brains out so avoid it pls
 
 # [strawpage !!](https://kittencatsmeow.straw.page)  pls look and perhaps signㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
 
